@@ -22,7 +22,7 @@ Utilizing WordPress plugins
 
 💞️ I’m open to collaboration on projects related to software development and cybersecurity.
 
-📫 You can reach me at [your-email@example.com] or connect with me on [LinkedIn Profile Link].
+📫 You can reach me at [anisbelhadj.contactgmail.com] 
 
 😄 Pronouns: He/Him
 
